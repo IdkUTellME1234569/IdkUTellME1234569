@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning life
 - 💞️ I’m looking to collaborate on stuff
 - 📫 How to reach me Don't
-- 😄 Pronouns: He/Bag cause ill never be him <img src="https://th.bing.com/th/id/OIP.H88aKb7tUCF3XycKwqHjFgHaEK?rs=1&amp;pid=ImgDetMain" alt="Shrek Wallpapers (66+ images)"/>!
+- 😄 Pronouns: He cause ill never be him >>> <img src="https://th.bing.com/th/id/OIP.H88aKb7tUCF3XycKwqHjFgHaEK?rs=1&amp;pid=ImgDetMain" alt="Shrek Wallpapers (66+ images)"/>!
 - ⚡ Fun fact: Im in the HTML projecto
 
 <!---
